@@ -63,8 +63,8 @@
 ###Интенсив от htmlacademy.
 
 Один из работников сказал, что не против раздачи. Если раздачи не будет - пишите в тред. Что такое интенсив от htmlacademy, посмотрите на их сайте.
-[ссылка на торрент](https://mega.co.nz/#!NVIkySKQ!uksvWXFK20OKSeWvoLVXKloihG8Zn2Yx7-FPMS43kyI)
-[сами файлы](https://mega.co.nz/#F!8VgAVQhD!6QsQM2hTkh-6DRGdvKEYzA)
+[ссылка на торрент](https://drive.google.com/file/d/0B8PUyDtxfNdSbUpmT3V6aGdnY28/view?usp=sharing)
+[сами файлы](https://drive.google.com/folderview?id=0B8PUyDtxfNdSczY4VTZsUlh6N3M&usp=sharing)
 
 
 ###Обучающее видео на английском.
